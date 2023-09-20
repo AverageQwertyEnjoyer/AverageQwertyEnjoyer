@@ -1,4 +1,4 @@
-Ye bruh just chillin
+Currently all projects are CLOSED.
 
 <!---
 AverageQwertyEnjoyer/AverageQwertyEnjoyer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
